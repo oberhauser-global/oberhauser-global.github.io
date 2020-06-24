@@ -1,1 +1,0 @@
-# Oberhauser Global
